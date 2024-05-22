@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 LB Music 」──
+    ──「 RAMAVTAR X MUSIC 」──
 </h2>
 
 <p align="center">
